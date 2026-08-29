@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/adyaWBdfCBC6Cnua/Untitled2206_20260829213401.png" alt="" width="250">
+  <img src="https://file.garden/adyaWBdfCBC6Cnua/Untitled2207_20260829214450.png" alt="" width="250">
 
 <p align="center"> <sub> art by <a href="https://github.com/constitum">@constitum</a>
 <p align="center">
